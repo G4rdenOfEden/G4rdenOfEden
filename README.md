@@ -1,4 +1,6 @@
 # ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
-Read more info on my Strawpage and Pronouns.page !! ^_^
+_Read more info on my Strawpage and Pronouns.page !! ^_^
 
-# https://4vvie.straw.page
+_Some of them still a wip !!_
+
+`https://4vvie.straw.page`
