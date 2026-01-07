@@ -1,1 +1,2 @@
-# lemme remake this.
+# ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
+Read more info on my Strawpage and Pronouns.page !! ^_^
