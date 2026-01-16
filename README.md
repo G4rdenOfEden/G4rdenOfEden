@@ -1,5 +1,5 @@
 # ⏝ ︶ ୨୧ ︶ ⏝
-_Read more info on my Strawpage and Pronouns.page !! ^_^
+_Read more info on my Strawpage and Rentry !! ^_^
 
 _`Some of them still a wip !!`_
 
