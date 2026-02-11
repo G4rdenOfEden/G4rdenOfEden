@@ -1,8 +1,1 @@
-# ⏝ ︶ ୨୧ ︶ ⏝
-_Read more info on my Strawpage and Rentry !! ^_^
-
-_`Some of them still a wip !!`_
-
-<a href="https://media1.tenor.com/m/wZBnCEbYK-AAAAAC/still-in-love-stillinlove.gif" target="blank"><img align="center" src="https://media1.tenor.com/m/wZBnCEbYK-AAAAAC/still-in-love-stillinlove.gif" height="300" /></a>
-
-https://4vvie.straw.page
+꒰ა [Strawpage](https://4vvie.straw.page) ♡ [Pronouns](https://pronouns.cc/@4vieee) ໒꒱
