@@ -1,3 +1,5 @@
 <div align="center">
   
-<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/e3bb6a42-e6fa-4669-999d-f2319fe76539" />
+<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/05ef3a12-d379-4c93-b3a2-f3238d65d206" />
+
+${\color{#814131}\text{꒰ა Strawpage ✦ Pronouns ໒꒱}}$
