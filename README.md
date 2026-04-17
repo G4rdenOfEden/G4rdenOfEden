@@ -4,7 +4,9 @@
 
 Free Cheesecake for y'all !! „
 
-Don't forget to sign my strawpage (⁠*⁠＾⁠3⁠＾⁠)⁠/⁠～⁠♡
+Don't forget to sign my strawpage (⁠*⁠＾⁠3⁠＾⁠)⁠/⁠～
+
+It's still a wip tho, HELP—
 
 ︶⏝︶ ୨୧ ︶⏝︶
 
