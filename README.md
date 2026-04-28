@@ -1,10 +1,10 @@
 <div align="center">
 
-Free Cheesecake for y'all !! „
+<sub>Free Cheesecake for y'all !! „</sub>
 
-Don't forget to sign my strawpage (⁠*⁠＾⁠3⁠＾⁠)⁠/⁠～
+<sub>Don't forget to sign my strawpage (⁠*⁠＾⁠3⁠＾⁠)⁠/⁠～</sub>
 
-It's still a wip tho, HELP—
+<sub>It's still a wip tho, HELP—</sub>
 
 ︶⏝︶ ୨୧ ︶⏝︶
 
