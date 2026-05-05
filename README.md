@@ -1,6 +1,6 @@
 <div align="center">
 
-<img width="450" height="370" alt="Image" src="https://github.com/user-attachments/assets/54dcde1f-ed5a-4b7a-bfb5-b3ce299d6e34" />
+<img width="740" height="640" alt="Image" src="https://github.com/user-attachments/assets/f63de708-3131-4bd2-8fd9-dc2d42eb86db" />
 
 <sub>[strawpage](bleh)󠀠󠀠󠀠ㅤㅤㅤㅤㅤ[Pronouns](bleh)ㅤㅤㅤㅤㅤ[Atabook](bleh)
 
