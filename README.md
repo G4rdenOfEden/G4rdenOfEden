@@ -5,4 +5,4 @@
 <sub>[strawpage](bleh)󠀠󠀠󠀠ㅤㅤㅤㅤㅤ[Pronouns](bleh)ㅤㅤㅤㅤㅤ[Atabook](bleh)
 
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=9B59B6)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=0F172A)
