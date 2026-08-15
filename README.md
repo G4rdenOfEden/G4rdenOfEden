@@ -11,3 +11,5 @@ ${\color{#8B74AB}\text{𓈒　 ᥲ᥎ᥱrіᥲ　⸝　ᥲ᥎ᥱ　⟢　4𝗍�
 <p>${\color{#8B74AB}\text{𝘤 + 𝘩 𝘢𝘯𝘥 𝘪𝘯𝘵 𝘧𝘳𝘦𝘦𝘭𝘺 ,}}$ <p>${\color{#8B74AB}\text{𝘶𝘯𝘭𝘦𝘴𝘴 𝘸𝘪𝘵𝘩 𝘮𝘺 𝘧𝘳𝘪𝘦𝘯𝘥𝘴.}}$ 
 
 [<img src="https://cdn.phototourl.com/free/2026-08-15-40fb7cfe-8004-41ff-8654-eb97e167f3c8.png" width="90">](https://pronouns.cc/@4vieee) ${\color{#8B74AB}\text{୨୧}}$[<img src="https://cdn.phototourl.com/free/2026-08-15-5e9b6e94-803d-40e5-b56a-e700c95c4bc0.png" width="90">](https://noli7n7.atabook.org) 
+
+<img width="2174" height="1000" alt="Image" src="https://github.com/user-attachments/assets/ffa879aa-062d-44e8-a0f5-b0c627b16800" />
